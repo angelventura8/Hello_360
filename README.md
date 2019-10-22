@@ -10,3 +10,11 @@ Videos
 -Brian Eno
 -Roy Ascott
 -Warhall
+-Vigilancia masiva
+-Captalismo de Vigilancia
+-1984(George Orwell)
+-Un mundo feliz
+-https://elpais.com/cultura/2016/02/05/actualidad/1454697596_388993.html
+-https://www.youtube.com/watch?v=pZu9N-3yn_M
+-https://www.youtube.com/watch?v=OAQ7l33UF3E
+-Se trata de un proyecto iversivo que atendiende estéticamente a la cuestión de identidad en internet desde un punto de vista distópico pero a la vez contado una realidad, la de la Vigilancia masiva. Este concepto se desarollará a través de una estructura esférica interactiva en la que se visualizarán una serie de videos en conjunto.
